@@ -1,2 +1,2 @@
-# ayush056
+# Ayush056
 Hello World ! This is my Profile 
